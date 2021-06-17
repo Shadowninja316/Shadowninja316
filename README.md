@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Shadowninja316
+- 👀 I’m interested in Video Games, cool visual effects and helping people simplify their lives.
+- 🌱 I’m currently learning coding. (In the very early stages at the moment)
+- 💞️ I’m looking to collaborate on Video Games and projects that help make peoples lives easier.
+- 📫 You can reach me at ephraimwilliams316@gmail.com 
